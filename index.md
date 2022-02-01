@@ -1,1 +1,1 @@
-a statistician's thoughts on slay the spire. catch me on [twitch](twitch.tv/marmle).
+a statistician's thoughts on slay the spire. catch me on [twitch](https://twitch.tv/marmle).
